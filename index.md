@@ -1,3 +1,3 @@
 Fanka dobrej muzyki, czarnej kawy oraz jazdy na rowerze.
 
-![Image](https://www.pikpng.com/pngvi/xmRbwb_1000-x-892-19-floyd-logo-pink-floyd-png-clipart/)
+![Image](![ava](https://user-images.githubusercontent.com/85885400/122471387-8743c200-cfbf-11eb-9c60-c37a94c52d3a.jpg))
